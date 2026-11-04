@@ -11,3 +11,7 @@
 **Preferred Interview Times:**
 - Monday–Friday: 10:00–21:00 (UTC+3)
 - Saturday–Sunday: 10:00–21:00 (UTC+3)
+
+**Availability Note:**
+
+I am available for interviews starting November 9, 2026, subject to prior scheduling.
